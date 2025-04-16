@@ -50,8 +50,7 @@
 
 ## ⚡ Frase que me inspira
 
-> *"Eu não falhei. Apenas descobri 10 mil maneiras que não funcionam."*  
-> — Thomas A. Edison 💡
+> *"Eu não falhei. Apenas descobri 10 mil maneiras que não funcionam."*  — Thomas A. Edison 💡
 
 ---
 
